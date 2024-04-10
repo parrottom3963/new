@@ -1,16 +1,7 @@
 # new
-gfh
-thk
-kl;kl;
-kj
-p
-j
--
-8
-jkjk
-jkj
+kjk
+kl
+k
 0
-lj
-=
-klk
-l;
+9
+lkl
